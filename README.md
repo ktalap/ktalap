@@ -1,7 +1,7 @@
 **Socials:**
 
-- [Signal](https://signal.me/#eu/-8rZDDBMZlnOMA9gvc-ZjZgTPxHecSFByGTfanAuKR_XGhodvoNPW4ehLr5b1Ag0)
-- Khair@cloudbunker.net (Response will come from a different email)
+- [Linkedin](https://www.linkedin.com/in/khair-talap-671b6631b/)
+- [Substack](https://ktalap.substack.com/?r=480zc6&utm_campaign=pub-share-checklist)
 
 **About me:**
 
