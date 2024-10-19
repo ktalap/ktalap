@@ -4,4 +4,4 @@
 
 **About me:**
 
-An engineer and an athlete.
+I am Ultramegathrone Maximum Prime. CEO of THESTARTUP (multi-multi-billion).
