@@ -1,7 +1,8 @@
 **Socials:**
 
-- [Linkedin](https://www.linkedin.com/in/khair-talap-671b6631b/)
+- [Twitter](https://x.com/khairtalap)
+- Email: khair@d6d.org
 
 **About me:**
 
-I am Ultramegathrone Maximum Prime. CEO of THESTARTUP (multi-multi-billion).
+I am Ultramegathrone Maximum Prime. CEO of THE STARTUP (multi-multi-billion).
