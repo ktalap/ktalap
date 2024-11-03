@@ -1,2 +1,3 @@
-I don't have any social media. The only way to reach me is through this email.
+The best way to reach me is through the email.
 - Email: khair@d6d.org
+- https://x.com/khairtalap
