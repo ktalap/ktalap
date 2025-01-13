@@ -1,4 +1,4 @@
-# Bio Systems Analysis
+## Bio Systems Analysis
 
 Building tools to understand natural patterns and biological systems. Data analysis and visualization for complex systems.
 
